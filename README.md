@@ -1,1 +1,2 @@
-all my games are free for anyone to download, maybe gimmie some credit tho yeah? 😭
+all of my shit made from scratch maybe some cgt but thats it
+
